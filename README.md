@@ -1,1 +1,1 @@
-# daochulang.github.io
+daochulang.com
